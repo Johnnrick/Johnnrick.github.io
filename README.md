@@ -1,1 +1,1 @@
-# Johnnrick.github.io
+# Spotscan.me
